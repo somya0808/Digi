@@ -17,3 +17,6 @@ Images of Currencies
 ![500_Digital_Rupee 1](https://github.com/somya0808/Digi/assets/76099618/4fe10f13-f94c-4adf-a7b8-6a86cbc07cf5)
 ![50_Digital_Rupee 1](https://github.com/somya0808/Digi/assets/76099618/832c7bcc-de44-408f-a187-5ccbb6779dfc)
 ![50_Digital_Rupee 1](https://github.com/somya0808/Digi/assets/76099618/84098e51-4b56-4060-a7f0-7a61730922be)
+
+![WhatsApp Image 2023-06-16 at 4 22 31 PM](https://github.com/somya0808/Digi/assets/76099618/49ffb83f-076a-46ec-8cf2-9e1f055eac5f)
+![WhatsApp Image 2023-06-16 at 4 22 32 PM](https://github.com/somya0808/Digi/assets/76099618/5c088e90-d99e-4765-8d76-31a911ef353f)
